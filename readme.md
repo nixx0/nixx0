@@ -1,0 +1,1 @@
+Welcome, you all fucking normies, to my GitHub page! Why not create a GitHub account, even though I personally don't believe in the value of open source cuz it's just some bullshit? While I probably won't create any repositories, but if I do, they will likely be the skid tools that I make and use
